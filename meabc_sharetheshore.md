@@ -1,4 +1,4 @@
-# Public consultation on #ShareTheShore
+# Ongoing denial of historic access in Greenisland - #ShareTheShore
 Mid & East Antrim Borough Council held a public consultation on restoring our historic access to the council-owned beach at Greenisland in 2025. OUR beach. YOUR beach. The results were resoundingly positive - over 90% of respondents **support access**. Shamefully, Council continue to block this for "safety" reasons that can be proven to be spurious.
 ![Image](https://github.com/user-attachments/assets/f20d45f8-0ff9-42de-be67-0b1f67ae3189)
 We've been campaigning for YEARS to get safe and reliable access to the beach for ALL residents and visitors - everyone should be welcome on the beach. Here are just a few reasons we gave for saying YES to access to the beach:
