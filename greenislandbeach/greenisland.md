@@ -1,0 +1,3 @@
+The saga of Mid & East Antrim Borough Council's failure to carry out its duties under the [1983 Access to the Countryside (Northern Ireland)](https://www.legislation.gov.uk/nisi/1983/1895) Order continues. I have received a response to my complaint about the blockage of the Public Right of Way at 87A Shore Road, Greenisland.
+In it, the Council admit failing to carry out their duties under the Order, and detail some of the explorations they have undertaken to (half-heartedly) address the issue, before folding and essentially kicking the can down the road.
+More on this soon...
